@@ -1,0 +1,5 @@
+![Screenshot (21)](https://github.com/varthini-mpv/CODSOFT-CALCULATOR/assets/132148416/e774735c-5c7c-4117-a7fd-893aa901b72f)
+![Screenshot (20)](https://github.com/varthini-mpv/CODSOFT-CALCULATOR/assets/132148416/a59afd6c-955b-4b12-a951-98cd0b643eb8)
+![Screenshot (19)](https://github.com/varthini-mpv/CODSOFT-CALCULATOR/assets/132148416/2488976a-d4ad-4ac6-b6f3-04c3ed583ef1)
+![Screenshot (18)](https://github.com/varthini-mpv/CODSOFT-CALCULATOR/assets/132148416/c485d51d-ae26-4771-b251-2e8e99af3195)
+![Screenshot (17)](https://github.com/varthini-mpv/CODSOFT-CALCULATOR/assets/132148416/5a547729-8b94-4f29-b8c7-821b37c74512)
